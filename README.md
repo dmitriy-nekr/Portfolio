@@ -1,5 +1,5 @@
 # Некрасов Дмитрий
-![Photo](https://vk.com/id34564702?z=photo34564702_457239249%2Falbum34564702_0%2Frev)
+![Photo](Avatar.jpg)
 
 ## Инженер, 30 лет
 
